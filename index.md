@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+“So long as you have food in your mouth you have solved all questions for the time being.”
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+–Franz Kafka
